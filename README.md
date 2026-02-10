@@ -1,2 +1,2 @@
-# gamescript
-sword fighters simulator hub 
+# SWORD FIGHTERS SIMULATOR OP SCRIPT  
+SWORD FIGHTERS MINI HUB SCRIPT (KEYLESS!)
